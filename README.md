@@ -5,7 +5,7 @@ Estoy en búsqueda de oportunidades para adentrar y ganar experiencia en el mund
 Me gustaría trabajar en ambientes donde se apueste por las personas, donde se busque desarollar el potencial de cada uno brindándole acompañamiento y herramientas para su proyección. Disfruto el buen clima y ambiente amistoso, considero que es la clave del éxito para un buen trabajo.
 
 
-En mis repositorios van a encontrar trabajos finales (y en procesos) que fui o iré realizando.
+En mis repositorios van a encontrar trabajos finales (y en procesos) que fui e iré realizando.
 
 Saludos ♥ 
 
